@@ -1,4 +1,4 @@
-# GitHubMirror
+# GitHub Mirror
 
 List of mirrors of GitHub.
 
