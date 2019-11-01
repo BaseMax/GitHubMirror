@@ -20,6 +20,13 @@ List of mirrors of GitHub.
 
 - https://www.phoiyb.online/
 - http://www.khbbq.com/github_/
+- http://i.codeku.me/BaseMax
+- http://xiqu.ganzhoupress.com/github_/BaseMax
+- https://ccshccchou777.xyz/BaseMax
+- http://txa.booklhh.com/github_/BaseMax
+- http://usopen.worldclasstennistour.com/github_/BaseMax/
+- http://www.cx13.cn/github_/
+- https://pop.doyl.in/github.com/
 
 ---------
 
